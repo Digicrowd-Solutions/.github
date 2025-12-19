@@ -1,6 +1,6 @@
 # Digicrowd Solution 🚀
 
-**Digicrowd Solution** is a results-driven **Digital Marketing & IT Services company** helping brands grow, scale, and stay ahead in a digital-first world.
+**Digicrowd Solution** is a results-driven **Digital Marketing Company in Lucknow** helping brands grow, scale, and stay ahead in a digital-first world.
 
 We combine **strategy, creativity, and technology** to deliver measurable impact — not just vanity metrics.
 
@@ -85,7 +85,7 @@ No black-box marketing. No over-engineered software.
 📧 Email: `contact@digicrowdsolution.com`  
 📍 Location: India  
 
-Let’s build something that actually grows your business.
+Let’s build something together with the best **digital marketing company in lucknow** that actually grows your business.
 
 ---
 
